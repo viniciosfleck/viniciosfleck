@@ -14,7 +14,7 @@
  
  <br>
  
-  ###  Follow me on my social media! :D
+  ###  Follow me on my social media!
  
 <div> 
 
